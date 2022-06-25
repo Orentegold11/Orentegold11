@@ -6,7 +6,7 @@
 Mobile: 📲 08068445198
 Email:nifoonline@gmail.com, 
 Instagram: Orentegold11, 
-Twitter: @orent_gold, 
+Twitter: @N_orentgold, 
 fb: Nifemi Tina Ojo
 
 <!---
